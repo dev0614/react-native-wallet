@@ -63,4 +63,4 @@ Contributions are always welcome!
 
 ## Feedback
 
-If you have any feedback, please reach out to me at heyfreaker@gmail.com
+If you have any feedback, please reach out to me at shimamuratakehiko44@gmail.com
